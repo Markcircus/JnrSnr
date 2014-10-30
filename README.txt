@@ -1,0 +1,1 @@
+Collective GIT for all Junior Senior assets
